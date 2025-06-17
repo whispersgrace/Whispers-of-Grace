@@ -1,2 +1,2 @@
-# Whispers-of-Grace
+# Daily-Grace
 Daily Devotionals 
